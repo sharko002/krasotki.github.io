@@ -1,0 +1,1 @@
+# krasotki.github.io
